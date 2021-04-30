@@ -1,0 +1,1 @@
+# ec-s06-prototypes-to-products-fall-2005_9b8fbf8f0c2648ac9535f623e4d878e2
